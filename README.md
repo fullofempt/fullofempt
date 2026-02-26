@@ -25,4 +25,4 @@
 
 ## ✉️ Contact
 - GitHub: https://github.com/fullofempt
-- https://t.me/fullofempt1
+- Telegram: https://t.me/fullofempt1
